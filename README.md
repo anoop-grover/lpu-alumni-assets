@@ -1,0 +1,1 @@
+# lpu-alumni-assets
